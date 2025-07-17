@@ -1,4 +1,4 @@
-
+![ view by kant counter on GitHub](https://komarev.com/ghpvc/?username=kagefumiw&color=e76d7c)  
 
 ![](https://files.catbox.moe/xhd313.png)
 
