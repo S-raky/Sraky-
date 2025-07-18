@@ -1,5 +1,5 @@
 ![ view by kant counter on GitHub](https://komarev.com/ghpvc/?username=kagefumiw&color=e76d7c)  
-
+ ![](https://komarev.com/ghpvc/?username=KAITO-V1&label=(˶˃⤙˂˶)&color=f34213)
 ![](https://files.catbox.moe/xhd313.png)
 
 ![](https://files.catbox.moe/xj9u7z.png)
